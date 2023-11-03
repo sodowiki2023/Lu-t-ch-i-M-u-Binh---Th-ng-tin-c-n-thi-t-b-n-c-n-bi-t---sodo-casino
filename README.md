@@ -1,1 +1,1 @@
-# Lu-t-ch-i-M-u-Binh---Th-ng-tin-c-n-thi-t-b-n-c-n-bi-t---sodo-casino
+Luật chơi Mậu Binh - Thông tin cần thiết bạn cần biết  - sodo casino - Thời gian game bài Mậu binh xuất hiện tại nhà cái Sodo thật sự đã khá lâu. Nhưng độ hot mà trò chơi mang đến vẫn chưa có dấu hiệu dừng lại. Tuy nhiên, để có thể chơi tốt game bài, các bạn cần nắm chắc luật chơi Mậu binh.  - https://sodo.wiki/luat-choi-mau-binh/
